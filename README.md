@@ -1,7 +1,8 @@
 # 💼 Nasrul Alfin Prassetyo Human Resource Portfolio
 
 Selamat datang di portofolio Human Resource Management (HRM) saya. Portofolio ini berisi rangkaian proyek, studi kasus, strategi, dan analisis yang saya kembangkan dalam rangka memperdalam pemahaman dan keterampilan di bidang HR, baik secara konseptual maupun praktis.
-[https://www.canva.com/design/DAGtruujql0/SMcZhGMTrvanVCGcJJAMGA/view?utm_content=DAGtruujql0&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h97d5ee4c6a]
+
+[https://shrtlink.ai/nqUU]
 
 ---
 
